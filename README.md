@@ -1,2 +1,1 @@
-# song.github.io
-resume page
+# SongYeJi96.github.io
